@@ -1,11 +1,14 @@
 <img src="https://i.postimg.cc/XYjYcZKz/Untitled11-20260625073539.png"/>
 Hello, my name is <ins>Mikko</ins>. I do not use pronouns or personal terms.
 <p></p>
-Please do not copy or publish my ponies on the Internet or anywhere else without permission.
+Please do not copy or publish my ponies on the Internet or anywhere else without permission. If you had asked me first, it would have been fine to draw inspiration from my pony with permission.
 
+<p></p>
 Interacting, Whispering, Gifting, Cuddling is ok.
+<p></p>
 
-Do not invite me to parties unless i ask.
+Do not invite me to parties unless i ask
+or invite me to whisper trading pony chats.
 
 Friending me is ok if you talk to me first.
 
