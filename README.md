@@ -1,9 +1,9 @@
 <img src="https://i.postimg.cc/XYjYcZKz/Untitled11-20260625073539.png"/>
 Hello, my name is <ins>Mikko</ins>. I do use They pronouns or personal terms. I am whatever you would like to call me. 
 <p></p>
-<ul><b>Please do not copy or publish my ponies on the Internet or anywhere else without permission.</b> If you had asked me first, it would have been fine to draw inspiration from my pony with permission.</ul>
+<ul>Please do not copy or <b>publish my ponies on the Internet or anywhere else without permission.</b> If you had asked me first, it would have been fine to draw inspiration from my pony with permission.</ul>
 
-<ul>Interacting, Whispering, Gifting, Cuddling is ok.</ul>
+<ul>Interacting, Whispering, Gifting, Cuddling, Hiding is ok.</ul>
 
 <ul>Do not invite me to party unless i ask
 or invite me to whisper trading pony chats.</ul>
