@@ -1,5 +1,5 @@
 <img src="https://i.postimg.cc/XYjYcZKz/Untitled11-20260625073539.png"/>
-Hello, my name is <ins>Mikko</ins>. I do not use pronouns or personal terms.
+Hello, my name is <ins>Mikko</ins>. I do use They He pronouns or personal terms. I am whatever you would like to call me. 
 <p></p>
 Please do not copy or publish my ponies on the Internet or anywhere else without permission. If you had asked me first, it would have been fine to draw inspiration from my pony with permission.
 
