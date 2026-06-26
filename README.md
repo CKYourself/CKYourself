@@ -1,4 +1,5 @@
-<img src="https://i.postimg.cc/XYjYcZKz/Untitled11-20260625073539.png"/>
+<img src="https://i.postimg.cc/L4y46Y9K/Untitled12-20260626102306.png"/>
+
 Hello, my name is <ins>Mikko</ins>. I do use They pronouns or personal terms. I am whatever you would like to call me. 
 
 <ul>Please do not copy or <b>publish my ponies on the Internet or anywhere else without permission.</b> If you had asked me first, it would have been fine to draw inspiration from my pony with permission.</ul>
